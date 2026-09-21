@@ -9,4 +9,4 @@ l looks like 1 in coding
 # **boom** *italics!*
 why is that there?
 i dunnno.
-how do i ataccch disc? ok. (DISC- 444- #DEXTER'S LABROTORY) 
+how do i ataccch disc? ok. #(DISC- 444- #DEXTER'S LABROTORY) 
