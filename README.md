@@ -23,3 +23,7 @@ copilot is no getr fg for good
          ***|***
 
 copilot keep saying dat a typo
+
+NO TYPOS 
+
+NO, I AM NOT GONNA ERASE THAT
