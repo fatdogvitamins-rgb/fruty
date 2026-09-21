@@ -10,3 +10,4 @@ l looks like 1 in coding
 why is that there?
 i dunnno.
 how do i ataccch disc? ok. #(DISC- 444- #DEXTER'S LABROTORY) 
+try u to attach disc 4 reel
