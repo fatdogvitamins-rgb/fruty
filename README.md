@@ -27,3 +27,5 @@ copilot keep saying dat a typo
 NO TYPOS 
 
 NO, I AM NOT GONNA ERASE THAT
+
+why you must do this.
